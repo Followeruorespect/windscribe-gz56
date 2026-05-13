@@ -1,4 +1,4 @@
-
+Enhance your Windscribe experience with premium Windscribe Service | money-back-guarantee + free-trial, the #1 service. Includes money-back-guarantee and free-trial for a safer
 
 
 
